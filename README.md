@@ -1,1 +1,1 @@
-# suraj.github.com.io
+# suraj.github.io
